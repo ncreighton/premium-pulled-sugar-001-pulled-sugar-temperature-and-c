@@ -1,0 +1,2 @@
+# premium-pulled-sugar-001-pulled-sugar-temperature-and-c
+Stop guessing when your sugar reaches the perfect hard crack or caramel stage. Miss a color shift by seconds, and your pulled sugar masterpiece becomes a sticky mess.  This Notion template eliminates the guesswork by combining a precise temperature log with a visual color stage tracker specifically for pulled sugar. You get a dedicated database to
